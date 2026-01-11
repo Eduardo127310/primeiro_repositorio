@@ -1,3 +1,3 @@
 # primeiro_repositorio
 
-sua prima e uma delicinha
+deixa eu mudar isso se não da merda
